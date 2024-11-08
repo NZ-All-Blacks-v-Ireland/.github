@@ -2,6 +2,10 @@ How to watch Ireland v New Zealand: Live stream today’s Autumn International
 
 Autumn Internationals don’t come any bigger than this. Two of the best sides in the world meet in Dublin tonight, and this guide explains how you can watch Ireland v New Zealand wherever you are in the world – including details of how Irish fans can tune in for free.
 
+[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/mrkhbub5)
+
+[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/mrkhbub5)
+
 Kick-off: 8.10pm GMT, Friday 8 November
 
 Watch for FREE in Ireland: Virgin Media Play
